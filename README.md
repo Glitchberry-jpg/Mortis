@@ -1,3 +1,1 @@
-<p align="center">
-  <img src="https://github.com/Glitchberry-jpg/Mortis/raw/40fd86ba295e93ca727aa6bfdd9a08fd445af85c6d32.jpg" alt="">
-</p>
+ https://github.com/Glitchberry-jpg/Glitchberry-jpg/raw/main/4f6ddb3d8c2dfd364094490e28abfde6.jpg
